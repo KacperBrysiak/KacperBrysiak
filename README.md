@@ -1,0 +1,2 @@
+- Z tej strony **Kacper Brysiak**.
+- Mój profil to Człowiek w Cyberprzestrzeni z wydziału prawa i administracji. 
